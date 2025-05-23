@@ -1,1 +1,2 @@
 Tuka pishe stoqn
+zdr
