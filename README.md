@@ -1,0 +1,1 @@
+Tuka pishe stoqn
